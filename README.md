@@ -1,3 +1,3 @@
 # Fun
 My very first project here!
-i am trying to edit this file~ 
+I am very looking forward to working on it!
